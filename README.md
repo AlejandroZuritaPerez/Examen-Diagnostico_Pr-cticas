@@ -1,1 +1,1 @@
-# Examen-Diagnostico_Pr-cticas
+# Examen-Diagnostico_Practicas
